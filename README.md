@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 Im Cameron and I am a student at *DBHS* who plays a lot of video games 🎮
 
 <!--
 **Cmcclellan1738/Cmcclellan1738** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
